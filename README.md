@@ -1,4 +1,4 @@
-### Hi there 👋
+### developer who likes to dabble into things when free
 
 <!--
 **hongkheng/hongkheng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
